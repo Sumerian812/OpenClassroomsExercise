@@ -5,3 +5,6 @@ I went to their original Muscle Beach location next to the Santa Monica Pier in 
 **Truly one of the best lemonades I've ever had!**
 
 ![hot dog on a stick at Santa Monica Pier](http://www.welikela.com/wp-content/uploads/2016/02/hot-dog-on-a-strick-santa-monica.jpg)
+
+---
+*Side note: Isn't it funny that their logo only says 'Hot Dog Stick' and not 'Hot Dog **ON** a stick'? LOL*
